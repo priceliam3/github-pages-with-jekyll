@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Word On the Street
 
-I'm glad you are here. I plan to talk about ...
+A place to talk about anything and everything that boggles our mind, is a topic of controversy, or simply our opinions on the matters of the world!
